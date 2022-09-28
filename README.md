@@ -9,4 +9,4 @@
 - 😄 Pronouns: He/Him 👨‍🦱
 - ⚡ Fun fact: I'm a slackliner 🕸️/Cyclist 🚴/Swimmer 🏊
 - 🌐 Check out my personal website: https://rohitnair.tech
-- ⛩ Favourite qoute: *De Ornibus Dubitandum* 📿︎
+- ⛩ Favourite qoute: *De Ornibus Dubitandum* - *everything must be doubted* 📿︎
