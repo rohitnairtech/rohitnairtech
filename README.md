@@ -20,7 +20,6 @@
 
 🧘 Fun facts:
 - I'm a **slackliner**, **cyclist**, and **swimmer** – I thrive on balance, speed, and flow.
-- Deeply inspired by the quote: *“De Omnibus Dubitandum”* – *Everything must be doubted.*
 
 ---
 
