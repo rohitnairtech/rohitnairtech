@@ -14,7 +14,7 @@
 ---
 
 📫 Reach me at: **[rohitnairtech@gmail.com](mailto:rohitnairtech@gmail.com)**  
-🌍 Portfolio Website: [**rohitnair.tech**](http://rohitnairtech.pages.dev)
+🌍 Portfolio Website: [**rohitnairtech.pages.dev**](http://rohitnairtech.pages.dev)
 
 ---
 
