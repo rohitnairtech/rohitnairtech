@@ -1,6 +1,6 @@
 ### Hey there! I'm Rohit 👋
 
-🎮 **Web Developer | AI Enthusiast | Web3 Explorer**
+🎮 **Fullstack Developer | AI Enthusiast | Web3 Explorer**
 
 ---
 
